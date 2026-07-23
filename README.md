@@ -1,3 +1,3 @@
-**About me **<br>
+**About** **me**<br>
 <br>
 I am studying Information Technology. My goal is to become a backend developer because I work best with a time pressure. 
