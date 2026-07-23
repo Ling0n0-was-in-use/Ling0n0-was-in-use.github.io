@@ -1,4 +1,4 @@
-**EDUCATION**
+**EDUCATION**/n
 Hoër Volkskool
 2019 - 2023
  Grade 12 Subject passed:
