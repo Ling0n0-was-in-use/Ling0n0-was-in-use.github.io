@@ -14,3 +14,6 @@ PHONE:<br>
 <br>
 EMAIL:<br>
 pietersneil600@gmail.com<br>
+<br>
+VIRTUAL CV<br>
+https://ling0n0-was-in-use.github.io
